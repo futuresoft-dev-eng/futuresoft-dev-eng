@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @futuresoft-dev-eng
+- 👋 Hi, I’m @Rose Ann Domingo(futuresoft-dev-eng)
 - 👀 I’m interested in designing and programming
 - 🌱 I’m currently learning more skills to improve
 - 💞️ I’m looking to collaborate on various programmers who is kind and patient enough to teach me
